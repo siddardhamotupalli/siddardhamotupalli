@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @siddardhamotupalli
 - 👀 I’m interested in css
 - 🌱 I’m currently learning computer 
-- 💞️ I’m looking to collaborate on parents 
+- 💞️ I'm interested in making money 💰
 - 📫 How to reach me call my number 7306944637
 - 😄 Pronouns: ...
 - ⚡ Fun fact: I don't love money, but in present days  i need money.This is the  reason for iam studying.
