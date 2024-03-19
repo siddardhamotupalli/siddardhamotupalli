@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on parents 
 - 📫 How to reach me call my number 7306944637
 - 😄 Pronouns: ...
-- ⚡ Fun fact: I don't love money, but present day i require money this reason for i studying.
+- ⚡ Fun fact: I don't love money, but in present days  i need money.This is the  reason for iam studying.
 
 <!---
 siddardhamotupalli/siddardhamotupalli is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
