@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @siddardhamotupalli
-- 👀 I’m interested in css
+- 👀 I’m interested in cascade style sheet
 - 🌱 I’m currently learning computer 
 - 💞️ I'm interested in making money 💰
 - 📫 How to reach me call my number 7306944637
